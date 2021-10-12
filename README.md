@@ -12,7 +12,7 @@ Programming and Computer Science are a part of my life and I'm proud of that �
  - 🍴 Gourmet, and cook to rely on myself
 
 ## Contacts ⬇️
-:envelope: [Mail](mailto:mathieu.tab@free.fr)
+:envelope: [mathieu.tab\[at\]free.fr](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 If you look in mygithub you will found some of my schools projects and some personal ones.
 
